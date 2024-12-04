@@ -1,4 +1,5 @@
 ## Making Informed Food Choices in the Digital Age
+![kono](https://d112y698adiu2z.cloudfront.net/photos/production/software_photos/003/169/783/datas/original.png)
 
 ## The Hidden Challenge of Online Grocery Shopping
 
